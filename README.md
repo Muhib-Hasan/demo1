@@ -2,8 +2,4 @@
 
 my name is muhib...i am creating a webpage right now...and i am again change my name which is hasan....
 
-
-
-i am also a good engineer...
-
-
+i am also an obedient student... 
